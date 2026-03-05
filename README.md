@@ -1,1 +1,0 @@
-# Practiva-1-Ciencias-de-datos
